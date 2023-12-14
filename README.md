@@ -83,5 +83,6 @@ Based on these results, it's crucial to introduce customized approaches for vari
 | Enoch Taylor-Nketiah         | https://github.com/kojoboyoo       |
 | Timothy Morenikeji Akinremi  | https://github.com/timothyakinremi |
 
+follow me on linkedin - https://www.linkedin.com/pulse/indian-startup-ecosystem-enoch-taylor-nketiah%3FtrackingId=jCEVr7E12p377%252BgWF0WLxA%253D%253D/?trackingId=jCEVr7E12p377%2BgWF0WLxA%3D%3D
 
 
